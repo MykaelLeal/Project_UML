@@ -8,4 +8,8 @@ https://miro.com/welcomeonboard/bHdvZXViVVh5MDZ4OW1zQWlyRWlDV2l6Zzc5V0pja0hUZ0ta
 
 # Sequencia: 
 
-https://lucid.app/lucidchart/a872c36c-1ba2-4354-b926-9e0e25653722/edit?view_items=QHhE3JeTmMOT&invitationId=inv_761b520b-c205-4212-b636-61b1f7ff1d2f 
+
+
+# Casos de Uso: 
+
+https://miro.com/welcomeonboard/am1QUmEyM1NhYTliZkhjMjBvY05Bc3NjMWNhRmFjYTZqZlAxcTMyOUFRVVY3U0V0TEwyMWFBS1B4Y1RLbmR6YXwzNDU4NzY0NTM4MDgxMDE0ODkxfDI=?share_link_id=948853715383 
