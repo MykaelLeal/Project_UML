@@ -8,7 +8,7 @@ https://miro.com/welcomeonboard/bHdvZXViVVh5MDZ4OW1zQWlyRWlDV2l6Zzc5V0pja0hUZ0ta
 
 # Sequencia: 
 
-
+https://miro.com/welcomeonboard/MEM3ZDFRdFdWYUw4Z1NVUkpHVlUzOWF6WTZFUkI2QWt6bHBPcDR1SnFLOEJmdVlUMkp5dkJCRkluUDVoTVF2b3wzNDU4NzY0NTM4MDgxMDE0ODkxfDI=?share_link_id=999057760073 
 
 # Casos de Uso: 
 
