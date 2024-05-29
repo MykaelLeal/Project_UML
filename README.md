@@ -1,6 +1,6 @@
 # Project_UML
 
-# Diagramas:
+# Diagramas
 
 # Classe:
 
